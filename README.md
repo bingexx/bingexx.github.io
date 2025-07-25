@@ -1,1 +1,1 @@
-# bingexx.github.io
+# [bingexx.github.io](https://bingexx.github.io/)
